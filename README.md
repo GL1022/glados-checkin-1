@@ -3,7 +3,7 @@
 
 # clash 使用教程：  
   http://www.xmstudent.ml/post-24.html
-#aaaaAAAA
+#aaaaAAAA啊啊啊啊啊啊
  
 
 # glados 注册
